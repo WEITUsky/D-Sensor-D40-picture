@@ -1,1 +1,1 @@
-# D-Sensor-D40-picture
+# D-Sensor-S40-picture
